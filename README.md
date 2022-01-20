@@ -1,0 +1,2 @@
+# boimela
+Boimela dot in (boimela.in) is the oldest initiative of an online Bengali books store, dedicated for Bengali books. People live out of West Bengal and miss Bengali books, wants to buy Bengali books online, boimela.in is the solution for those Bengali people. Mr. Subrata Kundu started this portal in 2010 just to help people avail the facility to order a Bengali book which brings some happiness. We are trying to list all books which will release in Kolkata Book Fair 2022.
